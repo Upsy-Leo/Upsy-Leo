@@ -12,7 +12,7 @@ Bref voila, mon profil github s'étoffe petit à petit, beaucoup de mes travaux 
 
 N'hésitez pas à me contacter pour discuter de design, de code ou de musique !
 
-Vous pouvez me joindre via Instagram "https://www.instagram.com/_upsy__" ou par mail "leopold.andre@edu.ece.fr".
+Vous pouvez me joindre via Instagram @\_upsy\_\_ ou par mail "leopold.andre@edu.ece.fr".
 
 
 
